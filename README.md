@@ -1,0 +1,1 @@
+# obraz-strony-Gospodarka-Zoptymalizowana
